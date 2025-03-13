@@ -5,6 +5,7 @@
 - 📫 How to reach me alepsaurio777@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fact: I love pizza
+- 🎮 IGN: Rey_qws, Alepsaleps5
 
 <!---
 Alepsaurio777/Alepsaurio777 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
